@@ -12,8 +12,6 @@
 
 - 📫 How to reach me **abhishekkushwaha1796@gmail.com**
 
-- 📄 Know about my experiences [file:///D:/My%20Resume/ABHISHEK%20KUSHWAHA%20RESUME%20ONE%20PAGE.pdf](file:///D:/My%20Resume/ABHISHEK%20KUSHWAHA%20RESUME%20ONE%20PAGE.pdf)
-
 - ⚡ Fun fact **Data is funny 😎👍**
 
 <h3 align="left">Connect with me:</h3>
